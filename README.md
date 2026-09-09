@@ -1,4 +1,4 @@
-# ⚽ FIFA 26 Ultimate Assistant | Unlimited FC Points, Coins & Unlock All Players
+# ⚽ FIFA 26 Ultimate Assistant | Unlimited FC Points, Coins & Unlock All Players 
 
 ![FIFA 26 Ultimate Assistant Preview](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRwBjlcBISVuEc0RkuAQJtI-cXOVY49K5d4wbUSH3ydYg&s=10)
 
